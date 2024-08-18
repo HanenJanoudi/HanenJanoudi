@@ -1,12 +1,12 @@
 **HANEN'S WORLD ☁️🦩**
 
-🪴*HI , Welcome To HANEN'S WORLD* ✨💻!!
+- 🪴*HI , Welcome To HANEN'S WORLD* ✨💻!!
 
-🌱 I'm currently learnnig everythig about IT in UNIVERSITY 🤓
+- 🌱 I'm currently learnnig everythig about IT in UNIVERSITY 🤓
 
-☁️ About Me : I'm Just A GIRL + Lover Eating 🎀🧁.
+- ☁️ About Me : I'm Just A GIRL + Lover Eating 🎀🧁.
 
-⭐ Fun Fact : " If your code in programming is work , DON'T TOUCH IT 😹"
+- ⭐ Fun Fact : " If your code in programming is work , DON'T TOUCH IT 😹"
 
 
 
