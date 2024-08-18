@@ -1,4 +1,4 @@
-**HI , I'm A Little IT-Enginerr 💻🎀**
+**HI , I'm A Little IT-Engineer 💻🎀**
 
 
 
