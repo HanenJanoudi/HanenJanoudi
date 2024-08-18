@@ -1,12 +1,12 @@
 **HANEN'S WORLD ☁️🦩**
 <li>
-<ld>
-HI , Welcome To HANEN'S WORLD* ✨💻!!
-</ld>
 
-<ld>
+HI , Welcome To HANEN'S WORLD* ✨💻!!
+
+<li/>
+<li>
 🌱 I'm currently learnnig everythig about IT in UNIVERSITY 🤓
-</ld>
+</li>
 
 <ld>
 ☁️ About Me : I'm Just A GIRL + Lover Eating 🎀🧁.
