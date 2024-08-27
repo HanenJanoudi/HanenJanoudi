@@ -1,6 +1,6 @@
 **HANEN'S WORLD ☁️;**
 
-- 🪴*HI , Welcome To HANEN'S WORLD* ✨💻!!
+- 🪴*Hi , Welcome To HANEN'S WORLD* ✨💻!!
 
 - 🌱 I'm currently learnnig everythig about IT in UNIVERSITY 🤓
 
